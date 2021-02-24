@@ -1,1 +1,1 @@
-# FAIRY-AND-THE-STAR-PROJECT-22
+# simply-project-22
